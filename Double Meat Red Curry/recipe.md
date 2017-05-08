@@ -7,7 +7,7 @@ Double Meat Red Curry
     2 medium sized potatoes (cubed)
     1/2 yellow pepper (cut 1"x.5")
     1/2 red pepper (cut 1"x.5")
-    1/2 oragne pepper (cut 1"x.5")
+    1/2 orange pepper (cut 1"x.5")
     1 can of coconut milk
     .5 Tbsp. turmeric
     1.5 Tbsp red curry paste
@@ -29,7 +29,7 @@ Total cooking time: 45 minutes
 6. Boil enough water to cook rice noodles, when done boiling, remove from heat and add rice noodles
    wait for them to get soft. Strain when done and rinse with cool water.
 7. Fill plate 3/4 with rice noodles, and 1/2 with mixture from wok.
-8. Garnish with scallions on the mixture side, and sesame seeds on the rice side. Flavor with a splash of lime juice
+8. Garnish with scallions on the mixture side, and sesame seeds on the rice side. Flavor with a splash of lime juice.
 
 Makes 4 servings.
 
