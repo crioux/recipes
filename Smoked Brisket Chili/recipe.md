@@ -2,6 +2,7 @@ Smoked Brisket Chili
 ====================
 
 Smoker:
+
     1.5 lbs beef brisket
     1/4 cup maple syrup
     1/4 cup apple cider vinegar
