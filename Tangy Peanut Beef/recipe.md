@@ -31,3 +31,6 @@ Total cooking time: 15 minutes
 8. Top rice noodles with mixture from wok and garnish with sesame seeds and lime juice.
 
 Makes 1-2 servings
+
+![Picture 1](picture1.jpg "Picture 1")
+![Picture 2](picture2.jpg "Picture 2")
