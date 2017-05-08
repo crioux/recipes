@@ -36,9 +36,13 @@
 3. Stirfry the onion for a few minutes until soft.
 4. Pull the beef out of the sauce and add to frying pan. 
 5. Cook, stirring, until the meat is no longer red. 
-6. Add corn syrup and stir well, glazing the beef.
-8. Add the rest of the sauce to the frying pan and stir fry on -high- for about 8 minutes or so, until much of the sauce is evaporated, leaving the beef dark and the sauce thick. This produces a sukiyaki sauce reduction glaze as well as a sauce.
-9. Remove from heat and stir in the ginger juice.
+6. Remove from heat and stir in the ginger juice.
+
+### For sukiyaki sauce glaze if desired
+
+1. Add corn syrup to beef and stir well, coating the beef. Allow to cool slightly to make beef sticky.
+2. Add the rest of the marinating sauce to the frying pan and reduce for about 4 minutes or so, until much of the sauce is evaporated.
+3. Return the beef to the pan and mix. Cook until the beef is dark and the sauce thick.
 
 ### Serving
 
