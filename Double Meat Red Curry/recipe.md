@@ -1,4 +1,4 @@
-Glowing Yin Yang Red Curry 
+Double Meat Red Curry 
 --------------------------
 
     1 Tbsp sesame oil
