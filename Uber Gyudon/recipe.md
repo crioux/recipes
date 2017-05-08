@@ -42,7 +42,7 @@
 
 1. Add corn syrup to beef and stir well, coating the beef. Allow to cool slightly to make beef sticky.
 2. Add the rest of the marinating sauce to the frying pan and reduce for about 4 minutes or so, until much of the sauce is evaporated.
-3. Return the beef to the pan and mix. Cook until the beef is dark and the sauce thick.
+3. Return the beef to the pan and mix. Cook until the beef is dark and the sauce thick, approximately another 4 minutes.
 
 ### Serving
 
